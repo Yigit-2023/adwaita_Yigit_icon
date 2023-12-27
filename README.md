@@ -1,1 +1,0 @@
-# adwaita_Yigit_icon
